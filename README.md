@@ -5,7 +5,8 @@
 
 💞️ I’m open to collaboration, particularly on projects that aim to merge technology with user-focused design to improve accessibility and insights in finance.
 
-📫 You can reach me via email or on social media for any collaboration or questions!
+📫 You can reach me on social media for any collaboration or questions!
+ig: maxime_sigaud
 
 😄 Pronouns: he/him
 
